@@ -1,1 +1,0 @@
-# bytesoft by nayeen
